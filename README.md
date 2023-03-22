@@ -1,4 +1,2 @@
-# Erica Elizabeth Garcete
----
-
-## Quality Engenieer from Banco del Sol
+# Erica Elizabeth Garcete :wave:
+> Quality Engenieer from **Banco del Sol :sunny:**
